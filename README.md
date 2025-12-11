@@ -1,2 +1,1 @@
-# Hurawatch-Link
-(https://hurawatchzz.tv)
+(https://hurawatchzz.tv/)
